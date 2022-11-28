@@ -1,1 +1,0 @@
-# Yrok.po.yd.rep.
